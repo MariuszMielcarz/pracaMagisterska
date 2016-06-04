@@ -1,0 +1,2 @@
+# pracaMagisterska
+#Mariusz Mielcarz
